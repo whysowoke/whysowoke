@@ -4,7 +4,7 @@ i think im cool .! check my sp and sign my ata
 
 my "pony style" on pt, is rlly inconssistent, bc i like to try new things and all that. tho, im not much a fan of the dark and mysterious style!!! most of my skins r bright and jolly
 
-i take art comms. kinda cool, add me on dc so i can show my art to u (i accept pix, robux, adopt me pets (cure, rare or megas) maybeee nitro??)
+i take art comms. kinda cool, add me on dc so i can show my art to u (i accept pix, robux, adopt me pets (cure, rare or megas) maybeee nitro??) dc; yukitoz_
 
 my fav mcyt is squiddo!!!!!!
 <!--
